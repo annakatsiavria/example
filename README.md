@@ -18,3 +18,7 @@ Graduate School Training
 14. Doctor, doctor! Help me - I'm getting shorter and shorter! Wait there and be a little patient!
 
 15. Doctor, doctor! I think I'm a pony? Don't worry, you're just a little hoarse.
+
+20. Doctor, doctor! I feel like a pair of curtains. Oh, pull yourself together!
+
+21. Doctor, doctor, I've got lettuce sticking out of my ear! Unfortunately, it looks like the tip of the iceberg....
